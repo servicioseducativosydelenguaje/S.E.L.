@@ -1,2 +1,2 @@
-# S.E.L.
-Servicios educativos y de lenguaje es una idea que nace a partir de la vocación y pasión de profesores de lengua. 
+# S.E.L. (Self Envorinomental Learning).
+S.E.L. is the result of committed teachers working for our need to stay connected globally. We offer the following services: 
